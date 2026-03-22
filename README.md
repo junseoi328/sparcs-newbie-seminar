@@ -1,1 +1,70 @@
-# sparcs-newbie-seminar
+Hello my name is JunSeo.
+I like to sleep long time.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Hello my name is JunSeo.
+I like to sleep long time.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Hello my name is JunSeo.
+I like to sleep long time.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
