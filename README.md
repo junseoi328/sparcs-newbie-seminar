@@ -2,6 +2,7 @@ Hello my name is JunSeo.
 I like to sleep long time.
 
 
+LOV3
 
 
 
@@ -20,51 +21,5 @@ I like to sleep long time.
 
 
 
-Hello my name is JunSeo.
-I like to sleep long time.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-Hello my name is JunSeo.
-I like to sleep long time.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+또 다시 보여줘야 돼
 
